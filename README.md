@@ -1,4 +1,4 @@
-👋 Hi, I’m @PEav52
+👋 Hi, I’m SEAVPEAV PECH (@PEav52)
 👀 I’m interested in new technology, skill development, and everything related to IT.
 🌱 I’m currently learning IT in my fourth year at the National Institute of Business, Cambodia.
 💞️ I’m looking to collaborate on Web Design, Web Development, Frontend Development, Windows Applications, and other IT-related projects.
